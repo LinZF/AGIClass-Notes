@@ -1,6 +1,6 @@
 
 
-# Openning【班会】
+# Opening【班会】
 
 2024-01-22 Contents：
 
